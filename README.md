@@ -8,7 +8,9 @@
 
 ---
 
-Ultimamente uso [Twitter](https://twitter.com/matiaslee) para escribir pavadas y antes que me robasen el teléfono usaba [Instragram](https://www.instagram.com/el.chun.lee/). Yo no seríá mi amigo en FB. Una foto tratando de robar un piedra del Partenón en 2017. 
+Ultimamente uso [Twitter](https://twitter.com/matiaslee) para escribir pavadas y antes que me robasen el teléfono usaba [Instragram](https://www.instagram.com/el.chun.lee/). Yo no sería mi amigo en FB :P 
+
+Una foto tratando de robar un piedra del Partenón en 2017. 
 
 ![Matías D. Lee, tratando de robar una piedra](https://avatars3.githubusercontent.com/u/22818203?s=460&u=2dd19681a95bcfc646aa71e32ad684241633fcc5&v=4)
 
